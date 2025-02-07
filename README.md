@@ -3,7 +3,7 @@
 - 🌱 I’m currently learnig robótica
 - 💞️ I’m looking to collaborate on myself
 - 📫 How to reach me: meu insta é sahhilary
-- 😄 Pronomes: ela/dela
+- 😄 Pronomes: ela/dele
 - ⚡ Fun fact: eu n lembro nda do ano passado
 
 <!---
