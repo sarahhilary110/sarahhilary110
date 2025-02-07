@@ -2,7 +2,7 @@
 - 👀 eu sou interessada em artes
 - 🌱 I’m currently learnig robótica
 - 💞️ I’m looking to collaborate on myself
-- 📫 How to reach me: meu insta é sah_hilary
+- 📫 How to reach me: meu insta é sahhilary
 - 😄 Pronomes: ela/dela
 - ⚡ Fun fact: eu n lembro nda do ano passado
 
